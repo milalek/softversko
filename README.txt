@@ -1,3 +1,3 @@
 zdravo hehehe
-deneska e petok
+deneska e sabota i mozam da spijam
 heheheheh
